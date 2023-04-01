@@ -1,0 +1,1 @@
+istvan si alex fac echipa bomba
